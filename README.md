@@ -1,2 +1,0 @@
-# Arbadovsoft
-Arbadovsoft
